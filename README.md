@@ -1,4 +1,4 @@
-# PeopleToAvoid
+# People To Avoid
 This list is for people that have unjustly done wrong things to me or others.
 
 Jaymesss: 
