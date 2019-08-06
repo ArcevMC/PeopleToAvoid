@@ -2,8 +2,11 @@
 This list is for people that have unjustly done wrong things to me or others.
 
 Jaymesss: 
+
   Discord Client ID: 491775096298536981 (jaymesss#0001)
+
   Server Owner of PolyMC. (Also provided resources for the actual server, Hub, etc)
+
   Situation:
     I was a Trial-Mod on PolyMC accepted by a friend of mine surge360 (Well-known HCF member). There was other staff members too promoted
   by surge and the owners. Particularly Newtt#2064 who was a "egirl" who often would be a toxic to me only (for no reason). This lead on people
