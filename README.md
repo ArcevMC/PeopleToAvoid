@@ -15,6 +15,7 @@ Jaymesss:
   saying "because no one likes you" claiming I was annoying as a reason. I acted naturally in the time I was on the server and was never asked once to desist from any behaviour
   that would be "annoying". For future reference for anyone playing PolyMC and are seeing this, please avoid playing on the server when jaymesss is an owner.
   He promotes toxicity and other unjust things and are the catalyst for why the HCF community is such in a deep hole of bad people and bad actions.
+  
 » Disclearing/Gr0unded/Apifile/Dripdon1/Brexit/brexitisexit
 Apifile is on just about every "Skid-list" on github he is no expectation here either he is well-known in this community for his misdeeds and actions towards users regardless of what he claims he will never change nor do anything that is worth attention. he has also griefed servers such as GTMinecart and small servers, he will honestly join a new hcf server as a developer and then wait for their release and then leak their files and user's IPS 2 days later so it hurts the server's rep and causes them to quit. he also rooms blackspigot in order to gain a following from that shitty site's community full of ratters.
 All and all do not trust Apifile with any kind of access to your server or any communication with him he backdoors anything he provides and can't even use eclipse properly half the time.
