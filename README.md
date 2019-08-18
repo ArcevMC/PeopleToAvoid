@@ -49,6 +49,8 @@ Exposing Video on Zefly (TTS) https://www.youtube.com/watch?v=CwpWNShOZg8
 
 » ItzAssassin/Ethan
 
+Networks: HCStatic, HCRival
+
 ItzAssassin has a history of "using" people and ignoring people who made him famous, ItzAssassin was an Owner of HCStatic and has scummed a lot of people, DeleteKey provided me with this statement.
 "He basically sold his server hcstatic to tank tracks and other people who I forgot and basically people bought rank but the server never came out or had a beta. Then itzassassin rebought it or whatever and made people rebuy ranks even if they had them on the hcstatic sold to tank tracks. And idk if anyone bought ranks but 2 months after the fact seemed like he only cared about hcrival and didn't give a shit about the people on hcstatic and the people who bought ranks Also not to mention he has owned servers will with Zefly in the past so wouldn't be surprised if he used skidded plugins" - DeleteKey#1342
 Regardless of that, ItzAssassin has been recently exposed for "skidding" Nova Client (A PvP Based Client created by PlumpOrange) and claiming it to be "HCRival Client" once this spread ItzAssassin had gone into "Damage Control" by explaining the situation and then removing the client from public eye and then for a brief time shouting out Nova, everything was good then until he removed the discord link and just now ignores the situation.
