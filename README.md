@@ -62,6 +62,19 @@ NovaClient Drama https://twitter.com/Nova_Client/status/1155917743239180288
 
 All and all ItzAssassin's following is just Botted users or just blind people that believe every word he states. utterly a blind fool.
 
+» Caiy
+
+Discord Client ID: 565626459054538772 (Caiy#0368)
+
+Server Owner of HCPvP (Provided nothing for the in-game content or structure, except for discord)
+
+Situation:
+I was a Developer hired to build HCPvP's entire structure of plugins, security and other aspects of the server.
+As first it was just me and Caiy and he was willing to pay me to simply compile plugins he had. I never completed any of the compiles and he wasnt really interested entirely at first. After that he bought HCPvP's name and rights, He then offered me to work with a 50/50 split, I took it. After about a couple of weeks he had a second person as a shareholder named Dylan. Dylan bought resources from a third party previously without me knowing and Caiy wanted to modify and use them. The inital agreement was verbal and based on what resources we had. On First Glance, they had enough money based on the fact that they paid a pretty penny for their resources. However, when they started making the HCPvP structure with me what ended up happening is when I was developing it and working they were putting in deadlines and setting up dates for release (Which wasnt right considering the work that needed done). Common annoying questions were "Is the core done yet?" or "Hows the core going?" which is fine. However, it got to the point where I had to tell him that it will be done when its done type of response. After some time passed and progress was made there was a inactivity problem with Caiy, he would always take these 3-4 days inactive periods that we couldnt get ahold of him via discord or twitter. NP there, however since there was releases it made it difficult to make the decision to launch without him. As a result, I delayed SOTW until further notice.
+After that it was mainly being inactive, his little brother messing with his discord (Like fuck off not paying type of shit), and him stating that he just quit HCPvP. Afterwards, I felt that it was useless to keep working for nothing so I halted progress and announced Caiy's Decision on the official discord (Eventually removed).
+The kicker here is that Caiy then switched to rebrand mode and then obtained Aodus.net (Recently, as of 9/21/2019). He then posted that hes selling Aodus.net for $30 and left the group. (Which is horrible considering his plan for HCPvP)
+Working for HCPvP was a complete loss for me and it should be regarded that for Caiy you should play his servers or join him in any of his Social followings. He may be becoming more toxic by putting a twitter post about a server's files being released that he didnt like.
+
 I will keep this list updated as I find more people you MUST avoid. Thanks
 - Arcev
 
