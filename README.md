@@ -1,7 +1,7 @@
 # People To Avoid
 This list is for people that have unjustly done wrong things to me or others.
 
-**» Jaymesss
+**» Jaymesss**
 
   Discord Client ID: 491775096298536981 (jaymesss#0001)
 
