@@ -1,7 +1,7 @@
 # People To Avoid
 This list is for people that have unjustly done wrong things to me or others.
 
-» Jaymesss 
+**» Jaymesss
 
   Discord Client ID: 491775096298536981 (jaymesss#0001)
 
@@ -16,7 +16,7 @@ This list is for people that have unjustly done wrong things to me or others.
   that would be "annoying". For future reference for anyone playing PolyMC and are seeing this, please avoid playing on the server when jaymesss is an owner.
   He promotes toxicity and other unjust things and are the catalyst for why the HCF community is such in a deep hole of bad people and bad actions.
   
-» Disclearing/Gr0unded/Apifile/Dripdon1/Brexit/brexitisexit
+**» Disclearing/Gr0unded/Apifile/Dripdon1/Brexit/brexitisexit
 
 Apifile is on just about every "Skid-list" on github he is no expectation here either he is well-known in this community for his misdeeds and actions towards users regardless of what he claims he will never change nor do anything that is worth attention. he has also griefed servers such as GTMinecart and small servers, he will honestly join a new hcf server as a developer and then wait for their release and then leak their files and user's IPS 2 days later so it hurts the server's rep and causes them to quit. he also rooms blackspigot in order to gain a following from that shitty site's community full of ratters.
 All and all do not trust Apifile with any kind of access to your server or any communication with him he backdoors anything he provides and can't even use eclipse properly half the time.
@@ -30,7 +30,7 @@ Threatening Stimpy http://prntscr.com/ontgk1
 Videos Created on Clew https://www.youtube.com/watch?v=nCS01kK6_Ew https://www.youtube.com/watch?v=7fxa1SH9Tmc
 
 
-» BabyAvaah/Avaah/depressedava
+**» BabyAvaah/Avaah/depressedava
 
 Ava is someone who isn't a "skidder" rather someone who has in DevCole's words "a hungry little motherfucker jumping from boy to boy every 2 weeks" "Avaah" is been exposed as being a male pretending to be a female (There is nothing wrong with being transgender) however in ava's case "He" was using his "Persona" of being a female to lore boys in to use them for power in the case of Warfine I personally warned FigT at the time "She" was using him for Owner and Power but at the time FigT was blinded by love and I understand the feeling no hate to him. he quickly pushed ava to the curb once he found out ava was a dude.
 Avaah at the time of creating his list is still a Moderator on PvP Land, I ask that you all go and report this information to the managers as someone who is like this doesn't deserve any rank on any server in this community and should just quit minecraft and do something with their lives.
@@ -38,7 +38,7 @@ Avaah at the time of creating his list is still a Moderator on PvP Land, I ask t
 Cole's Twitlonger on this situation https://www.twitlonger.com/show/n_1sqvfjm
 
 
-» ZeflyYT/Zefly/EliteSmooth/Misthought
+**» ZeflyYT/Zefly/EliteSmooth/Misthought
 
 Zefly is someone who claims to be the best developer but can only use leaked code that can be found either on blackspigot or provided to him by a third party, Zefly has "Created" a few "Custom"(iHCF leaked code) cores and has scammed people out of money and time. he created TazeHQ a server that ended up becoming an IP Farm and caused for a lot of user's IPs being leaked. he has leaked broken cores onto his channel to get a following from 13 year olds that can't simply buy a core from mc-market that actually works.
 
@@ -48,7 +48,7 @@ There we more but he took down all of his videos on his main channel that video 
 Exposing Video on Zefly (TTS) https://www.youtube.com/watch?v=CwpWNShOZg8
 
 
-» ItzAssassin/Ethan
+**» ItzAssassin/Ethan**
 
 Networks: HCStatic, HCRival
 
@@ -62,7 +62,7 @@ NovaClient Drama https://twitter.com/Nova_Client/status/1155917743239180288
 
 All and all ItzAssassin's following is just Botted users or just blind people that believe every word he states. utterly a blind fool.
 
-» Caiy
+**» Caiy
 
 Discord Client ID: 565626459054538772 (Caiy#0368)
 
@@ -75,7 +75,7 @@ After that it was mainly being inactive, his little brother messing with his dis
 The kicker here is that Caiy then switched to rebrand mode and then obtained Aodus.net (Recently, as of 9/21/2019). He then posted that hes selling Aodus.net for $30 and left the group. (Which is horrible considering his plan for HCPvP)
 Working for HCPvP was a complete loss for me and it should be regarded that for Caiy you should play his servers or join him in any of his Social followings. He may be becoming more toxic by putting a twitter post about a server's files being released that he didnt like.
 
-» Zewr
+**» Zewr
 
 Discord Client ID: 467892936613560360 (Zewr#0001)
 
