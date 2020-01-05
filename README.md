@@ -84,7 +84,7 @@ Server Owner of BlackoutPvP and WrathHQ (Conceptualized WrathHQ, No Investment r
 
 Situation:
 As a contextual help, Landen is currently the MAIN owner because of his access and purchases of the resources.
-Landen and Slurrp and Zewr were discussing business when each of them ran into a disagreement. Landen and Slurrp were in this case against Zewr. Conversations mustve turned toxic and violent as they discussed it because as a result of the conversation, Zewr proceeded to commence to SWAT Landen. Whether or not this happened, there is proof of Zewr admitting to swatting Landen.
+Landen and Slurrp and Zewr were discussing business when each of them ran into a disagreement. Landen and Slurrp were in this case against Zewr. Conversations mustve turned toxic and violent as they discussed it because as a result of the conversation, Zewr proceeded to commence to SWAT Landen. Whether or not this happened, there is proof of Zewr admitting to SWATTING.
 (https://images-ext-1.discordapp.net/external/9AeP5mSq-4pDIS5XqoxEIiwjPtI7X9FWs-vxmNgo_e8/%3Fwidth%3D791%26height%3D450/https/images-ext-1.discordapp.net/external/yEb7HcVl0bdj6Ktae4PhoUaYP-d6qBUIxKifS1uiKuQ/%253Fwidth%253D878%2526height%253D499/https/media.discordapp.net/attachments/663191753448488960/663210382747238410/Screen_Shot_2020-01-04_at_9.41.05_PM.png?width=712&height=405)
 Afterwards, Landen then revoked access to the Domain and the dedicated server therein. Landen was removed from the main discord for WrathHQ as Zewr created it.
 WrathHQ is currently in rebrand mode as Zewr should not be able to recover the resources revoked from him. 
