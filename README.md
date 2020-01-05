@@ -75,6 +75,21 @@ After that it was mainly being inactive, his little brother messing with his dis
 The kicker here is that Caiy then switched to rebrand mode and then obtained Aodus.net (Recently, as of 9/21/2019). He then posted that hes selling Aodus.net for $30 and left the group. (Which is horrible considering his plan for HCPvP)
 Working for HCPvP was a complete loss for me and it should be regarded that for Caiy you should play his servers or join him in any of his Social followings. He may be becoming more toxic by putting a twitter post about a server's files being released that he didnt like.
 
+» Zewr
+
+Discord Client ID: 467892936613560360 (Zewr#0001)
+
+Server Owner of BlackoutPvP and WrathHQ (Conceptualized WrathHQ, No Investment recorded)
+
+Situation:
+As a contextual help, Landen is currently the MAIN owner because of his access and purchases of the resources.
+Landen and Slurrp and Zewr were discussing business when each of them ran into a disagreement. Landen and Slurrp were in this case against Zewr. Conversations mustve turned toxic and violent as they discussed it because as a result of the conversation, Zewr proceeded to commence to SWAT Landen. Whether or not this happened, there is proof of Zewr admitting to swatting Landen.
+(https://images-ext-1.discordapp.net/external/9AeP5mSq-4pDIS5XqoxEIiwjPtI7X9FWs-vxmNgo_e8/%3Fwidth%3D791%26height%3D450/https/images-ext-1.discordapp.net/external/yEb7HcVl0bdj6Ktae4PhoUaYP-d6qBUIxKifS1uiKuQ/%253Fwidth%253D878%2526height%253D499/https/media.discordapp.net/attachments/663191753448488960/663210382747238410/Screen_Shot_2020-01-04_at_9.41.05_PM.png?width=712&height=405)
+Afterwards, Landen then revoked access to the Domain and the dedicated server therein. Landen was removed from the main discord for WrathHQ as Zewr created it.
+WrathHQ is currently in rebrand mode as Zewr should not be able to recover the resources revoked from him. 
+Please refrain from playing with Zewr due to his actions in the community. Link down below is the server that may become rebranded to Zewr's liking.
+(https://discord.gg/ZYNVPNB)
+
 I will keep this list updated as I find more people you MUST avoid. Thanks
 - Arcev
 
