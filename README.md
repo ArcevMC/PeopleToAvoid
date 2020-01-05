@@ -88,6 +88,7 @@ Landen and Slurrp and Zewr were discussing business when each of them ran into a
 (https://images-ext-1.discordapp.net/external/9AeP5mSq-4pDIS5XqoxEIiwjPtI7X9FWs-vxmNgo_e8/%3Fwidth%3D791%26height%3D450/https/images-ext-1.discordapp.net/external/yEb7HcVl0bdj6Ktae4PhoUaYP-d6qBUIxKifS1uiKuQ/%253Fwidth%253D878%2526height%253D499/https/media.discordapp.net/attachments/663191753448488960/663210382747238410/Screen_Shot_2020-01-04_at_9.41.05_PM.png?width=712&height=405)
 Afterwards, Landen then revoked access to the Domain and the dedicated server therein. Landen was removed from the main discord for WrathHQ as Zewr created it.
 WrathHQ is currently in rebrand mode as Zewr should not be able to recover the resources revoked from him. 
+
 Please refrain from playing with Zewr or on his hardware that has access to your IP (Servers) due to his actions in the community.
 
 I will keep this list updated as I find more people you MUST avoid. Thanks
