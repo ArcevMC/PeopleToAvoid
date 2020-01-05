@@ -21,7 +21,8 @@ This list is for people that have unjustly done wrong things to me or others.
 Apifile is on just about every "Skid-list" on github he is no expectation here either he is well-known in this community for his misdeeds and actions towards users regardless of what he claims he will never change nor do anything that is worth attention. he has also griefed servers such as GTMinecart and small servers, he will honestly join a new hcf server as a developer and then wait for their release and then leak their files and user's IPS 2 days later so it hurts the server's rep and causes them to quit. he also rooms blackspigot in order to gain a following from that shitty site's community full of ratters.
 All and all do not trust Apifile with any kind of access to your server or any communication with him he backdoors anything he provides and can't even use eclipse properly half the time.
 
-» BabyClew/Clew/Simpsons/Xo Mericals/Shiroshu/improvisors/Mr. Zilex Client(Credit to C0an for the name)
+**» BabyClew/Clew/Simpsons/Xo Mericals/Shiroshu/improvisors/Mr. Zilex Client(Credit to C0an for the name)**
+
 BabyClew better known as "Clew" has the same reputation as Disclearing if not worse, there is countless evidence that proves this user only cares for his network (Zilex Network) and money. if you even attempt to create a video on this user you can guarantee when you check your email the next day or so you'll have a strike and the the video will be removed or all profits will go clew. below is screenshots of some of his interesting threats.
 Strike Threats http://prntscr.com/ontfxp http://prntscr.com/ontg5g http://prntscr.com/ontg9o http://prntscr.com/ontgf3
 
