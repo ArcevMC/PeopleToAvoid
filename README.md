@@ -88,7 +88,6 @@ Landen and Slurrp and Zewr were discussing business when each of them ran into a
 Afterwards, Landen then revoked access to the Domain and the dedicated server therein. Landen was removed from the main discord for WrathHQ as Zewr created it.
 WrathHQ is currently in rebrand mode as Zewr should not be able to recover the resources revoked from him. 
 Please refrain from playing with Zewr due to his actions in the community. Link down below is the server that may become rebranded to Zewr's liking.
-(https://discord.gg/ZYNVPNB)
 
 I will keep this list updated as I find more people you MUST avoid. Thanks
 - Arcev
